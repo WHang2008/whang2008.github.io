@@ -8,7 +8,5 @@ WHang2008
 
 My Projects: 
 
-Other Projects: 
-
-Friendship Projects: 
+Others: 
 
